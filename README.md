@@ -1,1 +1,1 @@
-# Trabalhos-acad-micos
+# Trabalhos-acadêmicos
